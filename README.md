@@ -1,0 +1,2 @@
+# psychos-mbti
+Privacy Policy
